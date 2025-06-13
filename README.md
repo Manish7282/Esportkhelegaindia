@@ -59,3 +59,28 @@ If you face any issues setting it up, feel free to contact the developer.
 Email:-manish004sah@gmail.com
 
 Thank you for using Esportkhelegaindia!
+
+
+
+
+
+![image](https://github.com/user-attachments/assets/b9b648dd-e7cb-4904-b495-0cd8d5d421bf)
+
+![image](https://github.com/user-attachments/assets/b9b3b4f6-6bcf-4b5e-8326-4dc1758c2110)
+
+
+![image](https://github.com/user-attachments/assets/82a59b81-4aed-4a8a-acc4-6466abb4b973)
+
+
+![image](https://github.com/user-attachments/assets/1420005a-2d11-49dc-847f-d09a01faec1f)
+
+
+Admin Side 
+![image](https://github.com/user-attachments/assets/1ab38379-9a8e-4043-8448-0a1d7775d3ab)
+![image](https://github.com/user-attachments/assets/3320ad8c-e191-4049-8d8b-43f0ada1820c)
+
+
+
+
+
+
